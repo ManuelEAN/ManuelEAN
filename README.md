@@ -1,5 +1,5 @@
 # 💫 About Me:
-ℹ My name is Manuel Amundaray, I'm a Materials Engineer transitioning to the IT world<br>🖥 Currently working at ZT Systems as NPI Project Manager<br>🤝 I’m looking to grow my skills as a programmer<br>💬 Ask me about anything. Always down to chat about interesting topics<br>⚡ Fun facts: Love the crypto ethos and sports (Ultimate Frisbee)
+ℹ My name is Manuel Amundaray, I'm a Materials Engineer transitioning to the IT world<br>🖥 Currently working at ZT Systems as NPI Project Manager<br>🤝 I’m looking to grow my skills as a programmer<br>💬 Ask me about anything. Always down to chat about interesting topics. Email: manuelea94@gmail.com <br>⚡ Fun facts: Love the crypto ethos and sports (Ultimate Frisbee)
 
 
 ## 🌐 Socials:
